@@ -17,7 +17,7 @@ title: San Salvador Estate
 email: chk1us@yahoo.com
 description: >- # this means to ignore newlines until "baseurl:"
   The Entertainment and Conference Centers offer modern day facilities for corporate events in a scenic and peaceful setting.
-baseurl: "" # the subpath of your site, e.g. /blog
+baseurl: "san-salvador-website" # the subpath of your site, e.g. /blog
 url: "http://www.sansalvadorentcentre.com/" # the base hostname & protocol for your site, e.g. http://example.com
 #twitter_username: jekyllrb
 #github_username:  jekyll

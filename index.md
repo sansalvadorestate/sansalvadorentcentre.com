@@ -6,13 +6,13 @@ layout: home
 permalink: /
 ---
 
-## Welcome
-
 Welcome to San Salvador Estate. The Entertainment and Conference Centers offer modern day facilities for corporate events in a scenic and peaceful setting. Please feel free to call or email us concerning inquiries for all your event needs.
 
 ## Site Photos
 
 {% include photos.html %}
+
+---
 
 ## Aerial Video
 

@@ -1,6 +1,6 @@
 ---
 layout: page
-title: For Entertainment
+title: The Entertainment Centre
 permalink: /entertainment-centre/
 ---
 
