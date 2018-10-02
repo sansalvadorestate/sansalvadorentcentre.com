@@ -7,6 +7,9 @@ permalink: /about/
 Visit us on Facebook:
 [venueoutdoorindoor](https://www.facebook.com/venueoutdoorindoor/)
 
+Check us out on Instagram:
+[San Salvador Estate Entertainment & Conference Centre](https://www.instagram.com/explore/locations/534828582/san-salvador-estate-entertainment-and-conference-centre/?hl=en)
+
 Chat with us on Messenger:
 [m.me/venueoutdoorindoor](http://m.me/venueoutdoorindoor)
 
