@@ -6,7 +6,7 @@ layout: home
 permalink: /
 ---
 
-## Welcome
+# Welcome
 
 Set in natural forest hills at the peak of Trinidad's Central Range in Gran Couva, lies the San Salvador Conference & Entertainment Centre. Built out of natural hardwoods, the Centre offers modern conferencing facilities in a scenic, peaceful setting. The Centre is ideal for corporate retreats that seek to encourage ‘out of the box’ thinking, where teams can work and learn in harmony with nature and leave feeling revitalized.
 
