@@ -1,6 +1,6 @@
 ---
 layout: page
-title: The Conference Room
+title: Conference Room
 permalink: /conference-room/
 ---
 
