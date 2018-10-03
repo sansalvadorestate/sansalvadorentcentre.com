@@ -1,11 +1,11 @@
 ---
 layout: page
-title: Contact
-permalink: /contact/
+title: About & Contact Us
+permalink: /about-contact/
 ---
 
-## Contact Us For More Information
-Please feel free to call, send us an email or submit your contact information in the form below and we'll get back to you.
+## Please feel free to call
+Send us an email or submit your contact information and we'll get back to you!
 
 Attn: Catherine Murphy
 
