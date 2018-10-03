@@ -12,6 +12,14 @@ The Centre forms part of the centuries old, two hundred (200) acre San Salvador 
 
 Team activities can be arranged around nature events or staff can relax while enjoying a game of lawn tennis, table tennis, darts or billiards. The San Salvador Conference and Entertainment Centre, environment that rejuvenates!
 
+Please feel free to call. Send us an email or submit your contact information and we'll get back to you!
+
+Attn: ***Catherine Murphy***
+
+Phone: [1-868-316-4582](tel:1-868-316-4582)
+
+Email: [chk1us@yahoo.com](mailto:chk1us@yahoo.com)
+
 ## Site Photos
 
 {% include photos.html %}
