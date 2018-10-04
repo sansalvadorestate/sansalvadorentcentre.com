@@ -2,7 +2,7 @@
 layout: post
 title:  "Website Relaunch"
 date:   2018-09-06 15:35:29 -0400
-categories: website relaunch
+categories: relaunch
 ---
 
 Our website has been updated and relaunched!
