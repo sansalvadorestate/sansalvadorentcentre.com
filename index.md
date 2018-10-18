@@ -10,8 +10,6 @@ Set in natural forest hills at the peak of Trinidad's Central Range in *Gran Cou
 
 > Please feel free to call. Send us an email or submit your contact information and we'll get back to you!
 
-Contact: **Catherine Murphy**
-
 Phone: [1-868-316-4582](tel:1-868-316-4582)
 
 Email: [chk1us@yahoo.com](mailto:chk1us@yahoo.com)

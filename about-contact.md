@@ -6,8 +6,6 @@ permalink: /about-contact/
 
 > Please feel free to call. Send us an email or submit your contact information and we'll get back to you!
 
-Contact: **Catherine Murphy**
-
 Phone:
 [1-868-316-4582](tel:1-868-316-4582)
 
