@@ -29,13 +29,10 @@ The lawn tennis court and front garden can also be used for different events suc
 - Setup of Tents
 - Tables & Chairs
 
-Two (`2`) ATVs and the centre pieces are rented at a separate cost. `2` persons can sit on it and `2` helmets are provided. 
-
-> The outdoor kitchen is also rented at a separate cost.
-
-> The estate also does tours of the cocoa house and estate at an additional cost.
-
-Tables and chairs included in the rental will be arranged by the Estate according to the company’s requirements. Any additional furniture in the Entertainment Centre that needs to be re-arranged has to be done by the company. Also, any additional tables and chairs rented by the company must be arranged by the company. The snooker table cannot move from its current location.
+Other Activities:
+- All Terrain Vehicles (`2` ATVs) are rented at a separate cost for riding on the extensive nature trails.
+- The outdoor kitchen is also rented at a separate cost which includes catcrackers, large sinks, freezer and refrigerator. Ideal for company cookouts.
+- Tours of the estate and cocoa house.
 
 The rental times are from `8AM - 5PM` for company events. For **weddings**, the facility is booked until **midnight**. The maximum capacity is `150` persons. *There is an additional fee for a security guard at the gate.*
 
