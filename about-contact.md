@@ -1,5 +1,5 @@
 ---
-layout: page
+layout: home
 title: About & Contact
 permalink: /about-contact/
 ---

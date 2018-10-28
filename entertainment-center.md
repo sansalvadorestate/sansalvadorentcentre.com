@@ -1,5 +1,5 @@
 ---
-layout: page
+layout: home
 title: Entertainment Centre
 permalink: /entertainment-centre/
 ---
