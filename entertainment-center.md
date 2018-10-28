@@ -6,19 +6,18 @@ permalink: /entertainment-centre/
 
 ![](https://lh3.googleusercontent.com/J-TeHnFoxmynDaORk_YtLB-2_QmDI4p8NzKdLz8_rvO5SxoRqnJIlVw7wA-YXToIjTituVMVkVgyMeay2-yL9UaOb-H0wv1SkWAI5otyem1SVVDhS8L7Bn8Se8Pe-D0AmoOq8lQqneuL8Uj-SaEfeHDOnC2-OYYmTgnHNr-em0pixNT29L-h_hs9am0yOoE3VOngqIxXFeYJImC8Zff9IqCcm9fb3naFn8-hS3Nodq_ei3DSpF5puAJPBJKksILriE0GDRWoc4KtIOozn32Tl_n-dTAZgEtL5hBuN3LSFBeH4DMdv9rEUASzel5w1blDCuViEhj9a1d-MMyoZSjw_yWLoDW0ju0g3lOtjk6rdRUI7jrOBWepZPU5WKUa1DadHcR-FnbZiHc85q--5vQhbik1sqfRv_ugFh5pz8UFrO8gPpB6qayk8Kb6E5b5UHNdNhieFfopKUGsIYxfo40kO8zl3sa8t6GdVLSrEHMRUNd5T4UvSite1fL24gC3orQrrQFcx4-4xuQAhjiBhMVjCVVPLX-GX_w9AVyEbxG2iThW9Pgl6yuL6T2aRYyeK4JJxOLPIuPgQgHl_jKZ-afI2PnKyHFOwoGFH9Gy36oU6Fk2c-M0hyxbV9eLNDoybd2_89PABdS9aOlqYrE4OhNt_ohSOaxARsXVeU4pIVMwGBaCWosEXHIPxmuY=w955-h716-no){:class="img-responsive"}
 
-The Entertainment Centre is a wooden greenheart building with wooden shutters that open outwards. It includes, available for use:
+The Entertainment Centre is a wooden greenheart building with wooden shutters that open outwards. It includes:
 - A white-board with paper & markers
 - Projector
 - Projector-screen
 - WiFi
-
-It allows for **usage of the grounds** and also includes a:
 - Lawn Tennis Court
 - Table Tennis Board
 - Snooker Table
-- Cricket Pitch 
 
-The lawn tennis court and garden area in front of the building can also be used for different events; 
+It allows for **usage of the grounds**, the front garden, cricket pitch, trails, nature walks.
+
+The lawn tennis court and front garden can also be used for different events such as: 
 - Small-goal Football
 - Miniature Golf
 - Basketball
