@@ -8,15 +8,15 @@ permalink: /
 
 Set in natural forest hills at the peak of Trinidad's Central Range in *Gran Couva*, lies the *San Salvador Conference & Entertainment Centre*. Built out of natural hardwoods, the Centre offers modern *conferencing facilities* in a scenic, peaceful setting. The Centre is ideal for *corporate retreats* that seek to encourage ‘out of the box’ thinking, where teams can work and learn in harmony with nature and leave feeling revitalized.
 
-> Please feel free to call. Send us an email or submit your contact information and we'll get back to you!
+The Centre forms part of the centuries old, two hundred `(200)` acre *San Salvador Estate*, which is rich in old immortelles, cedars, teaks and scores of other tropical forest species. Trails lead through to existing cocoa fields and paths can lead to up to one thousand feet `(1,000 ft)` above sea level for breath taking views of the *Northern Range*, *Caroni Plains* and the *Gulf of Paria*.
+
+Team activities can be arranged around nature events or staff can relax while enjoying a game of lawn tennis, table tennis, darts or billiards. The San Salvador Conference and Entertainment Centre, environment that rejuvenates!
+
+> Please feel free to call, send us an email or submit your contact information and we will get back to you.
 
 Phone: [1-868-316-4582](tel:1-868-316-4582)
 
 Email: [chk1us@yahoo.com](mailto:chk1us@yahoo.com)
-
-The Centre forms part of the centuries old, two hundred `(200)` acre *San Salvador Estate*, which is rich in old immortelles, cedars, teaks and scores of other tropical forest species. Trails lead through to existing cocoa fields and paths can lead to up to one thousand feet `(1,000 ft)` above sea level for breath taking views of the *Northern Range*, *Caroni Plains* and the *Gulf of Paria*.
-
-Team activities can be arranged around nature events or staff can relax while enjoying a game of lawn tennis, table tennis, darts or billiards. The San Salvador Conference and Entertainment Centre, environment that rejuvenates!
 
 ![](https://lh3.googleusercontent.com/J-TeHnFoxmynDaORk_YtLB-2_QmDI4p8NzKdLz8_rvO5SxoRqnJIlVw7wA-YXToIjTituVMVkVgyMeay2-yL9UaOb-H0wv1SkWAI5otyem1SVVDhS8L7Bn8Se8Pe-D0AmoOq8lQqneuL8Uj-SaEfeHDOnC2-OYYmTgnHNr-em0pixNT29L-h_hs9am0yOoE3VOngqIxXFeYJImC8Zff9IqCcm9fb3naFn8-hS3Nodq_ei3DSpF5puAJPBJKksILriE0GDRWoc4KtIOozn32Tl_n-dTAZgEtL5hBuN3LSFBeH4DMdv9rEUASzel5w1blDCuViEhj9a1d-MMyoZSjw_yWLoDW0ju0g3lOtjk6rdRUI7jrOBWepZPU5WKUa1DadHcR-FnbZiHc85q--5vQhbik1sqfRv_ugFh5pz8UFrO8gPpB6qayk8Kb6E5b5UHNdNhieFfopKUGsIYxfo40kO8zl3sa8t6GdVLSrEHMRUNd5T4UvSite1fL24gC3orQrrQFcx4-4xuQAhjiBhMVjCVVPLX-GX_w9AVyEbxG2iThW9Pgl6yuL6T2aRYyeK4JJxOLPIuPgQgHl_jKZ-afI2PnKyHFOwoGFH9Gy36oU6Fk2c-M0hyxbV9eLNDoybd2_89PABdS9aOlqYrE4OhNt_ohSOaxARsXVeU4pIVMwGBaCWosEXHIPxmuY=w955-h716-no){:class="img-responsive"}
 
