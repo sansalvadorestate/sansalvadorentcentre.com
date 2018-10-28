@@ -16,6 +16,7 @@ The Entertainment Centre is a wooden greenheart building with wooden shutters th
 - Lawn Tennis Court
 - Table Tennis Board
 - Snooker Table
+- Two Male and Female Washrooms
 
 It allows for **usage of the grounds**, the front garden, cricket pitch, trails, nature walks.
 - The use of the cricket pitch is a large space which can facilitate tent setup, chairs and sporting events.
@@ -34,8 +35,4 @@ Other Activities:
 - The outdoor kitchen is also rented at a separate cost which includes catcrackers, large sinks, freezer and refrigerator. Ideal for company cookouts.
 - Tours of the estate and cocoa house.
 
-The rental times are from `8AM - 5PM` for company events. For **weddings**, the facility is booked until **midnight**. The maximum capacity is `150` persons. *There is an additional fee for a security guard at the gate.*
-
-If necessary and a company needs to set up the day before, the set up time allowed is from `7AM - 12 Noon`. *An additional fee of will be charged.*
-
-There are two (`2`) male and two (`2`) female washrooms in the Entertainment Centre. The washrooms are equipped with all the necessities. For bookings of more than one hundred persons (`100`), the onus is on the company to rent additional portable toilets.
+The daily rental times are between `8AM - 5PM`. For **weddings**, the facility is booked until **midnight**. The maximum capacity is `150` persons.
