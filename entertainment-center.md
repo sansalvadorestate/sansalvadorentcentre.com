@@ -26,8 +26,6 @@ The lawn tennis court and front garden can also be used for different events suc
 - Setup of Tents
 - Tables & Chairs
 
-> Any breakages would need to be refunded in cost by the company. 
-
 The use of the cricket pitch is a large space which can facilitate tent setup, chairs and sporting events. The rental of the Entertainment Centre building includes the kitchen (use of the refrigerator if needed, stove, microwave, very large counter space), the lawn tennis court tables and chairs to seat `50` persons as well as additional seating, tablecloths. There are four (`4`) rectangular tables that seat up to `8` persons (usually used for food setup), ten round tables that seat up to `5` persons and `50` fold in chairs. For bookings of more than `50` persons, the onus is on the company to rent additional tables and chairs.
 
 Two (`2`) ATVs and the centre pieces are rented at a separate cost. `2` persons can sit on it and `2` helmets are provided. 
