@@ -5,7 +5,7 @@ date:   2018-10-28 14:53:00 -0400
 categories: history, tortuga, san salvador estate
 ---
 
-### History of Tortuga, San Salvador Estate, Gran Couva:
+### Our History
 
 Tortuga, named after the multitude of turtles (morocoys) which roamed the landscape, is a small village approx. 10 sq . km in size. It was well known as a thriving agricultural community with several groups contributing to its economic development. 
 This region was settled by a diverse group such as Frenchmen who came after the 1783 Cedula de Poblacion. 
@@ -20,7 +20,7 @@ After 1867, Governor Arthur Gordon elevated Montserrat to  ward status and estab
 
 Traditionally an agricultural community,  Tortuga’s landscape is no longer filled with extensive acreages of sugar cane, cocoa and bananas. These crops have been largely replaced by vegetables. This small rural community remains close knit.
 
-### Read Article Here
+### Read the Full Article
 
 [Our Lady of Montserrat](https://www.ourladyofmontserrat.org/)
 
