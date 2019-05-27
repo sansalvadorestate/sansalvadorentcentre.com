@@ -1,7 +1,7 @@
 ---
+title: Memorable Team Building
 layout: post
-title:  "Memorable Team Building"
-date:   2018-11-20 12:14:58 -0400
+date: '2018-11-20 05:17:04'
 categories: company team builder event bonding
 ---
 
