@@ -1,6 +1,6 @@
 ---
 layout: home
-title: About & Contact
+title: About
 permalink: /about-contact/
 ---
 

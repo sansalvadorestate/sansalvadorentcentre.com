@@ -1,6 +1,6 @@
 ---
 layout: home
-title: Blog & Updates
+title: Blog
 permalink: /blog-updates/
 ---
 
