@@ -18,6 +18,8 @@ Phone: [1-868-316-4582](tel:1-868-316-4582)
 
 Email: [chk1us@yahoo.com](mailto:chk1us@yahoo.com)
 
+**Airbnb: [Getaway to a private 200 acre cocoa estate, read more on Airbnb!](https://www.airbnb.com/rooms/35882201?location=San%20Salvador%20estate%20trinidad&source_impression_id=p3_1563563403_e4U7xup0hp%2FPrdMX){:target="_blank"}**
+
 #### Cottage for Rent
 ![](https://farm66.staticflickr.com/65535/48308204316_d8f452417c_c.jpg){:class="img-responsive"}
 
